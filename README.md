@@ -1,4 +1,4 @@
-## Henry VII had eight children, but only four of them survived.
+## Henry VII died April 21, 1509. (One day before Earth Day!)
 
 <!--
 **rgalang2/rgalang2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
